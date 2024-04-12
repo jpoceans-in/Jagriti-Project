@@ -1,1 +1,0 @@
-# Jagriti-Project
